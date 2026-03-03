@@ -16,6 +16,3 @@ Feel free to connect with me via [LinkedIn](https://www.linkedin.com/in/jiaoerma
 **3. Finance & Investment**
 
    I have successfully passed CFA(Chartered Financial Analyst) Level I and the FRM(Financial Risk Manager) exam, demonstrating rigorous training in financial analysis, asset valuation, and risk management. Through diverse venture capital internships, I developed a solid foundation in investment logic while gaining exposure to multiple industries and business models.
-
-   
-
